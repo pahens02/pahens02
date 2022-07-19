@@ -1,0 +1,3 @@
+->👋 Hello! I’m @pahens02 and I am rising Junior studying Data Analytics and Business Process Managment.  
+-> My areas of interest are machine learning, data illustration, film, business, and turning all aspects of my life into spreadsheets.
+-> I'm always interested in expanding my horizens so feel free to reach out to me at pahens02@louisville.edu
